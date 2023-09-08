@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Courage-id12
+- 👋 Hi, I’m Pooja Suryawanshi 
 - 👀 I’m interested in learning varient...
 - 🌱 I’m currently learning computer science 
 - 💞️ I’m looking to collaborate on developing skills
